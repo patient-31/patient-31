@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @patient-31 also known as Daniel Haddington
-- 🌱 I’m going to be going to SAE University Online in 2025
+- 🌱 I’m going to SAE University Online in 2025
 - 📫 How to reach me ... [haddingtondaniel5@icloud.com]
 - 😄 Pronouns: ... That dude over there.
 - ⚡ Fun fact: ... Im a bit too insane.
