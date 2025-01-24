@@ -2,7 +2,7 @@
 - 🌱 I’m going to SAE University Online in 2025
 - 📫 How to reach me ... [haddingtondaniel5@icloud.com]
 - 😄 Pronouns: ... That dude over there.
-- ⚡ Fun fact: ... Im a bit too insane.
+- ⚡ Fun fact: ... 
 
 <!---
 patient-31/patient-31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
